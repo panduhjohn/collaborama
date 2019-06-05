@@ -8,3 +8,7 @@
 
 # If you could learn one skill from beginner to pro in one second, what would it be?
 
+# Probaby how to start my own business and the ins and out of everything included. 
+    How would you have ended GoT? That ending was awful...
+
+     
