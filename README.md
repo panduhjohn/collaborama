@@ -9,6 +9,11 @@
 # If you could learn one skill from beginner to pro in one second, what would it be?
 
 # Probaby how to start my own business and the ins and out of everything included. 
-    How would you have ended GoT? That ending was awful...
 
-     
+
+# How would you have ended GoT? That ending was awful...
+
+# I was hoping for more democratic ending (since the iron throne was gone and all), but pretty much anything else would've been better than Bran becoming the king..
+
+
+# Batman or Superman
