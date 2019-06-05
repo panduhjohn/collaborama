@@ -46,4 +46,13 @@
 
 # Shameless, best show ever.
 
-Alright last one, Why do you want to code?
+
+
+# Alright last one, Why do you want to code?
+
+# I need another career (not just some random jobs) to support my poorly paid acting career.
+
+
+
+# So you're gonna get those airpods tomorrow then :D?
+
