@@ -56,3 +56,4 @@
 
 # So you're gonna get those airpods tomorrow then :D?
 
+# Dude you're an actress? Thats awesome. Haha yeah Best Buy is closed. ahh well, see you in class tomorrow. Roam says Hi.
