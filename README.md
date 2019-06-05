@@ -19,4 +19,13 @@
 # Batman or Superman
 
 # Batman, just not Ben Affleck Batman.
-    If you had to pick your own entrance music, for some reason, what song would you pick?
+
+
+# If you had to pick your own entrance music, for some reason, what song would you pick?
+
+# Something super tacky like Rocky Balboa theme
+
+
+# One place you wanna base-jump but can't (or maybe you can but it's illegal or something)?
+
+
